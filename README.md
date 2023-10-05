@@ -8,5 +8,5 @@
 👯 I'm looking to collaborate on anything involving graphic and web design.  
 📫  You can reach me at azulentagrafica@gmail.com   
     
-👂🌿🐄 Also...I always feel curious about animals and plants.  
+👂🌿🐄 Also...I always feel curious about animals and plants 🌺🌿👂
 
