@@ -1,6 +1,6 @@
 ### Hello! 👋 😊
 
-✋ I'm Alba, a beginner graphic designer and front end developer working on a professional path that keeps me close to the visual language.  
+✋ I'm Alba, a beginner front-end developer and graphic designer working on a professional path that keeps me close to the visual language.  
 ☺️ I'm happy when I run into original and simple images that convey their message in a beautiful way.  
 💙 I've studied arts at uni.  
 💻 I make static pages with HTML, CSS (Sass) and Javascript.  
